@@ -1,4 +1,6 @@
-# Welcome to LoveSexEager wiki
+# Home
+
+Welcome to LoveSexEager wiki
 
 ## Who I am?
 

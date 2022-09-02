@@ -5,7 +5,7 @@ site_description: "A wiki for love and sexuality eagers"
 copyright: "LoveSexEager is licensed under the <a href='https://github.com/lovesexeager/lovesexeager.github.io/blob/working/LICENSE'>MIT license</a>"
 theme:
     name: cinder
-    logo: docs/img/logo.png
+    logo: img/logo.png
 markdown_extensions:
     - toc:
         permalink: "#"
