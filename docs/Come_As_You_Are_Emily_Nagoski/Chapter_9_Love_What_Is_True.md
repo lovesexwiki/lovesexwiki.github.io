@@ -24,13 +24,13 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 ### _Normal_ 
 
-- **Cultural meaning**: You are like society says (moral, media, and medical scripts) you should be. 
+- **Cultural meaning**: You are like _cultural messages_ says you should be. 
 
-What is totally imposible because many cultural messages are opposites.
+Which is totally imposible because many cultural messages are opposites.
 
 - **True meaning**: Totally healthy, just same parts as everyone else, organized in a unique way.
 
-Almost everyone is normal. 
+Everyone who is healthy (physical and mentally) is normal. 
 
 ### _Cultural messages_ 
 
@@ -48,7 +48,7 @@ are sexually desirable, you are, by definition, unlovable, and a slut.
 
 - **Medical messages**: You are deseased.
 
-> Sex causes disease and pregnancy, which makes it dangerous. But if you’re ready to take that risk, sexual functioning should happen in a particular way—desire, then arousal, then orgasm, preferably during intercourse, simultaneously with your partner — and when it doesn’t, there is a medical issue that you must address. Medically. With medication. Or possibly surgery. To the extent that a woman’s sexual response differs from a man’s, she is diseased — except for pregnancy, which is what sex is for. 
+> Sex causes disease and pregnancy, which makes it dangerous. But if you’re ready to take that risk, sexual functioning should happen in a particular way — desire, then arousal, then orgasm, preferably during intercourse, simultaneously with your partner — and when it doesn’t, there is a medical issue that you must address. Medically. With medication. Or possibly surgery. To the extent that a woman’s sexual response differs from a man’s, she is diseased — except for pregnancy, which is what sex is for. 
 
 ## Why _confidence_ is not enough?
 
@@ -78,10 +78,9 @@ Many our goals, such as spontaneous desire or orgasm with intercourse, are not g
 
 #### The _map_ and _terrain_
 
-What would you say if a _map_ doesn't match the terrain you are seeing with your own eyes? Which is wrong, the map or the terrain? Everyone would probably say that it is the ground that is wrong. But what if everyone says the map is right and it's the terrain you're looking at which's wrong?
+What would you say if a _map_ doesn't match the terrain you are seeing with your own eyes? Which is wrong, the map or the terrain? Everyone would probably say that it is the terrain that is wrong. But what if everyone says the map is right and it's the terrain you're looking at which's wrong?
 
 Our sexual _scripts_ are our the _map_, and our experiences are our terrain.   
-
 
 
 

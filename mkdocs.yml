@@ -3,7 +3,11 @@ site_url: https://lovesexeager.github.io
 site_author: lovesexeager
 site_description: "A wiki for love and sexuality eagers"
 copyright: "LoveSexEager is licensed under the <a href='https://github.com/lovesexeager/lovesexeager.github.io/blob/working/LICENSE'>MIT license</a>"
+strict: true
 theme: cinder
 markdown_extensions:
+    - smarty
+    - sane_lists
     - toc:
+
         permalink: "#"
