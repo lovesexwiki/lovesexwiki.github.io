@@ -9,5 +9,4 @@ markdown_extensions:
     - smarty
     - sane_lists
     - toc:
-
         permalink: "#"
