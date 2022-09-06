@@ -13,6 +13,7 @@ markdown_extensions:
 nav:
     - Home: 'index.md'
     - 'Come As You Are - Emily Nagoski': 
+        - Overview: Come_As_You_Are_Emily_Nagoski/Overview.md
         - 'Chapter 9: Love what is true': Come_As_You_Are_Emily_Nagoski/Chapter_9_Love_What_Is_True.md
         - 'True Stories': Come_As_You_Are_Emily_Nagoski/True_Stories.md 
         - Extra: 
