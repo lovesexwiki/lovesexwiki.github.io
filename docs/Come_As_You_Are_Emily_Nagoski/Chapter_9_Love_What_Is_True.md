@@ -26,19 +26,19 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 ### Other chapters
 
-- **Negative feelings**: Feelings like hate, angry, frustration, despair, disappoinment and shame.
+- **Negative feelings**: Feelings like hate, angry, frustration, despair, disappointment and shame.
 
 #### _Normal_ and _broken_ 
 
 - **Social meaning**: You are like _social messages_ says you should be. 
 
-Which is totally imposible because many _social messages_ are opposites.
+Which is totally impossible because many _social messages_ are opposites.
 
 - **True meaning**: Totally healthy, just same parts as everyone else, organized in a unique way.
 
 Everyone who is healthy (physical and mentally) is normal. 
 
-- **Broken**: Not _normal_, the social meaning. Ussually implies damaged, inadequate, or diseased. It's something wrong with you.
+- **Broken**: Not _normal_, the social meaning. Usually implies damaged, inadequate, or diseased. It's something wrong with you.
 
 #### _Social messages_ 
 
@@ -54,20 +54,20 @@ are sexually desirable, you are, by definition, unlovable, and a slut.
 
 > Spanking, food play, ménages à trois... you’ve done all these things, right? Well, you’ve at least had clitoral orgasms, vaginal orgasms, uterine orgasms, energy orgasms, extended orgasms, and multiple orgasms? And you’ve mastered at least thirty-five different positions for intercourse? If you don’t try all these things, you’re frigid. If you’ve had too few partners, don’t watch porn, and don’t have a collection of vibrators in your bedside table, you’re a prude. Also: You’re too fat and too thin; your breasts are too big and too small. Your body is wrong. If you’re not trying to change it, you’re lazy. If you’re satisfied with yourself as you are, you’re settling. And if you dare to actively like yourself, you’re a conceited bitch. In short, you are doing it wrong. Do it differently. No, that’s wrong, too, try something else. Forever.
 
-- **Medical messages**: You are deseased.
+- **Medical messages**: You are deceased.
 
 > Sex causes disease and pregnancy, which makes it dangerous. But if you’re ready to take that risk, sexual functioning should happen in a particular way---desire, then arousal, then orgasm, preferably during intercourse, simultaneously with your partner---and when it doesn’t, there is a medical issue that you must address. Medically. With medication. Or possibly surgery. To the extent that a woman’s sexual response differs from a man’s, she is diseased---except for pregnancy, which is what sex is for. 
 
 ## Confidence: The map
 
-### Step 1: Analyce your sexuality 
+### Step 1: Analyze your sexuality 
 
 Ask yourself: 
 
 - What are my _accelerators_ and _brakes_ and how sensitives are they?
 - What are my _stressors_ and how sensitive they are?
 - Which is my desire type? Do I have spontaneous, responsive or context-dependent desire? 
-- Does my genital response predicts my arousal? How much?
+- Does my genital response predict my arousal? How much?
 - How do I reach orgasm? Do I need clitoral stimulation?
 
 Tell yourself that whatever your answer is, you are normal. Your body is also normal.
@@ -86,9 +86,9 @@ Many our goals, such as spontaneous desire or orgasm with intercourse, are not g
 
 What would you say if a _map_ doesn't match the terrain you are seeing with your own eyes? Which is wrong, the map or the terrain? Everyone would probably say that it is the terrain that is wrong. But what if everyone says the _map_ is right and it's the terrain you're looking at which's wrong?
 
-Our sexual _scripts_ are our the _map_, and our experiences are our terrain. When our experiences don't match the _map_ our brains try to make the _map_ true, forcing our experience into the shape of the _map_. You feel your experiences **should** match the _map_, i.e. a gap. That is why the _litte monitor_ activates.   
+Our sexual _scripts_ are our the _map_, and our experiences are our terrain. When our experiences don't match the _map_ our brains try to make the _map_ true, forcing our experience into the shape of the _map_. You feel your experiences **should** match the _map_, i.e. a gap. That is why the _little monitor_ activates.   
 
-> The first step toward joy is recognizing a mismatch between the map and the terrain, with the knowledge that the terrain is always right.
+> The first step toward joy is to recognize a mismatch between the map and the terrain, with the knowledge that the terrain is always right.
 
 Once you recognize this mismatch, you have to draw a new _map_ grounded on science and your own experience.
 
@@ -98,7 +98,7 @@ Because maybe you already know what is true about yourself (and about your partn
 
 > Scripts aren’t about what we intellectually believe is true. They act as a template for our emotional One Ring and for our little monitor to filter and organize information. You can disagree with a script and still find yourself behaving according to it and interpreting your experience in terms of it.
 
-There are some ways that may make you struggle reaching _joy_:
+There are some ways that may make you struggle to reach _joy_:
 
 - To think of yourself as lesser.
 
@@ -114,23 +114,23 @@ The construction of responsive desire as “lesser” is not a “fact,” of co
 
 - To have _negative feelings_ about what is true of yourself, for being as you are.
 
-**Solution**: Don't lock up those feelings, address them by _non-judging_. complete the _stress cycle_.
+**Solution**: Don't lock up those feelings, address them by _non-judging_. Complete the _stress cycle_.
 
 - Link your personality to one of those _social messages_.  
 
-> Smart womens don’t want sex. Smart girls are interested in minds, not bodies; only stupid girls are ruled by their "base animal instincts."
+> Smart women don’t want sex. Smart girls are interested in minds, not bodies; only stupid girls are ruled by their "base animal instincts."
   
-**Solution**: Notice you are just playing a role. People are always playing roles (as partner, parent, child, uncle, student, employee, boss, etc.---You even behave differently with different groups of friends). But you are not the role you are playing, you are not even the role you play being alone. Everyone is free; so you don't have to play a role you have been playing. You probably didn't consciously choosen that role and it's just an absurd _social message_.    
+**Solution**: Notice you are just playing a role. People are always playing roles (as partner, parent, child, uncle, student, employee, boss, etc.---You even behave differently with different groups of friends). But you are not the role you are playing, you are not even the role you play being alone. Everyone is free; so you don't have to play a role you have been playing. You probably didn't consciously chosen that role and it's just an absurd _social message_.    
 
 ## _Joy_: The hard part
 
-You sense, that sensesations generate a feeling, then you judge that feeling based on your beliefs and expectations---that's your _litte monitor_.
+You sense, that sensations generate a feeling, then you judge that feeling based on your beliefs and expectations---that's your _little monitor_.
 
 ### Step 3: How you feel about how you feel?
 
 Once you have _confidence_ and you had drawn a new _map_, how do you feel about what your _map_ (your sexuality) is like? You may have _negative feelings_ about it.
 
-_Negative feelings_ hurts, so people ussually lock them deep inside themselves, without completing the _stress cycle_ and not healing themselves.
+_Negative feelings_ hurts, so people usually lock them deep inside themselves, without completing the _stress cycle_ and not healing themselves.
 
 Whenever you notice a _negative feeling_ ask yourself (don't lock it):
 
@@ -138,7 +138,8 @@ Whenever you notice a _negative feeling_ ask yourself (don't lock it):
 - What is making me feel this way?
 - What are my thoughts about it? 
 - Am I judging it?
-- On what belief or expectative do I base my judgment?
+- On what belief or expectation do I base my judgment?
+
 - It is this belief true? 
 
 Do [reality-check](True_Stories.md#reality-check) and heal that feeling by completing the _stress cycle_.
@@ -167,7 +168,7 @@ You have stress about something you can't do anything about---A bad new you see 
 
 Let you feel your feeling by _non-judging_ and tell yourself _"It's ok, I can't do anything about it, so don't make sense to feel that way"_. 
 
-> When we have feelings we can’t really do anything about and we don’t know how to let ourselves simply feel without doing anything, our brains will look for some situation it can do something about, and it will try to impose the feelings on that situation.
+> When we have feelings we can’t really do anything about, and we don’t know how to let ourselves simply feel without doing anything, our brains will look for some situation it can do something about, and it will try to impose the feelings on that situation.
 
 I.e. You feel angry with the result of the football match so you yell at your son at the slightest thing you can scold him about.
 
@@ -175,7 +176,7 @@ I.e. You feel angry with the result of the football match so you yell at your so
 
 A trauma is a wound in your mind. And like a wound in the body, it causes pain, but emotional pain, not physical pain. The pain is part of the healing process. But if you numb your physical pain, healing can still happen. Alas, if we try to “numb” your emotional pain, we get a break from the pain... but the healing is put on pause.
 
-For healing a trauma you have to let yourself feel what you feel without lock those feelings. This ussually implies suffering and patience, maybe months. 
+For healing a trauma you have to let yourself feel what you feel without lock those feelings. This usually implies suffering and patience, maybe months. 
 
 Someone described this process like:
 
@@ -189,7 +190,7 @@ All pain is created in the brain, in response to the body’s signals that there
 
 > Pain is a signal that your brain perceives a threat, and you might need help. If you use your own internal experience, rather than culturally imposed criterion velocities, as your most accurate source of knowledge about sex, you’ll be able to hear your brain’s signal that you need help, and you’ll take it seriously.
 
-Many people don't take pain seriusly, and this is mainly due to _social messages_ like:
+Many people don't take pain seriously, and this is mainly due to _social messages_ like:
 
 - Pain in sex is normal.
 - Pain in sex is pleasure. 
@@ -206,19 +207,19 @@ Any **unwanted** pain is **not** normal.
 
 > Our willingness to tolerate greater effort---in this case, pain---is learned. And it can be changed, simply by becoming aware of it and allowing the possibility that it could be different.
 
-Be aware thay you feel pain and tell youserlf _"Pain is not normal. I don't have to deal with pain. There are solutions. I will seek for a solution"._
+Be aware that you feel pain and tell yourself _"Pain is not normal. I don't have to deal with pain. There are solutions. I will seek for a solution"._
 
-> This is as literal as it gets: It’s not how you feel (pain). It’s how you feel (tolerant or not) about how you feel. Non-judgin doesn’t mean resignation. It means turning toward what’s true with kindness, without self-criticism. With non-judging, you can ask for help.
+> This is as literal as it gets: It’s not how you feel (pain). It’s how you feel (tolerant or not) about how you feel. Non-judging doesn’t mean resignation. It means turning toward what’s true with kindness, without self-criticism. With non-judging, you can ask for help.
 
 See [pain causes](extra/Pain_Causes.md).
 
 ### Increasing pleasure 
 
-Pleasure is the hardest part, because there are many _social messages_ about it and they are laden with _"shoulds"_ and _negative feelings_. 
+Pleasure is the hardest part, because there are many _social messages_ about it, and they are laden with _"shoulds"_ and _negative feelings_. 
 
 > Many of us have been taught that pleasure is selfish, sinful, a waste of time, or something to be ashamed of. How dare we attend to what feels good, when we ought to be attending to other people’s needs or our partner or making sure we meet other people’s expectations?
 
-> Too many peoble make their choices based not on what they like, but on what they believe their partner likes or what they’ve been told they "should" like.
+> Too many people make their choices based not on what they like, but on what they believe their partner likes or what they’ve been told they "should" like.
 
 So how can I allow myself to enjoy the pleasure? Practice non-judging when you feel pleasure and tell yourself:
 
@@ -231,7 +232,7 @@ Someone said:
 
 > "I can’t be a source of joy in the lives of the people I love if I can’t even be a source of joy for myself."
 
-By not judging, you allow yourself to experience pleasure and enhance it, leading you straight to ectasis.
+By not judging, you allow yourself to experience pleasure and enhance it, leading you straight to ecstasy.
 
 > This is a strange truth about nonjudgment. When you turn toward suffering with nonjudgment, the suffering diminishes as wounds heal. When you turn toward pleasure with nonjudgment, it expands to all the space judgment once
 filled.
@@ -242,11 +243,11 @@ That happens because you brain has a processing capacity. If you spend part of i
 
 ### Mourning the "shoulds"
 
-For some people knowing what is true (confidence) is enough to set them free from the myths of _social messages_. Others also need to notice their judgmental feelings so they can release those _social messages_ by _non-judging_. But for others (the worst case) notice their judgmental feelings is not enough to free themselves from those _social messages_. Why?
+For some people knowing what is true (confidence) is enough to set them free from the myths of _social messages_. Others also need to notice their judgmental feelings, so they can release those _social messages_ by _non-judging_. But for others (the worst case) notice their judgmental feelings is not enough to free themselves from those _social messages_. Why?
 
-Many of our goals (the "shoulds") in lives, have been imposed on us through the _social messages_---especially in sexuality because it is so taboo---, so release those myths from _social messages_ is to say to your _litte monitor_ _"Hey, I'm sorry but I give up, it's imposible"_. And you already know how your _little monitor_ reacts to this, with _awful feelings_ (the worst of the _negative feelings_), it's the ultimate disappointment for the _little monitor_, you feel like a complete failure. You have given up what you were taught was the right _map_.
+Many of our goals (the "shoulds") in lives, have been imposed on us through the _social messages_---especially in sexuality because it is so taboo---, so release those myths from _social messages_ is to say to your _little monitor_ _"Hey, I'm sorry but I give up, it's impossible"_. And you already know how your _little monitor_ reacts to this, with _awful feelings_ (the worst of the _negative feelings_), it's the ultimate disappointment for the _little monitor_, you feel like a complete failure. You have given up what you were taught was the right _map_.
 
-Many of these _social messages_ are so deep in our minds that we had built our personalities based on them. That's why reach _joy_ becomes so difficult for many people, because free themselves from those _social messages_ implies a failture and leave behind part of his personality. 
+Many of these _social messages_ are so deep in our minds that we had built our personalities based on them. That's why reach _joy_ becomes so difficult for many people, because free themselves from those _social messages_ implies a failure and leave behind part of his personality. 
 
 You are pulling up all the weeds (poisonous goals and beliefs) from your _mental garden_ (your mind), which happened to be most of the plants, leaving it almost deserted. It hurts so much.
 
