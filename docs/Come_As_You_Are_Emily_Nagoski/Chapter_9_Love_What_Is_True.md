@@ -10,15 +10,15 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 - **Confidence**: Knowing what is true about your body, mind, sexuality, and life.
 
-> Knowing that your genitals are made of the same parts as everyone else’s, organized in a unique way. Knowing about the brakes and accelerator. Knowing about context and about the difference between liking, wanting, and learning. Knowing about arousal nonconcordance and responsive desire. Knowing what’s really true, even when it’s not what you were taught “should” be true. Knowing what’s true, even when it’s not what you wish were true.
+> Knowing that your genitals are made of the same parts as everyone else’s, organized in a unique way. Knowing about the brakes and accelerator. Knowing about context and about the difference between liking, wanting, and learning. Knowing about arousal non-concordance and responsive desire. Knowing what’s really true, even when it’s not what you were taught “should” be true. Knowing what’s true, even when it’s not what you wish were true.
 
 - **Joy**: Loving what is true about your body, mind, sexuality, and life. 
 
-> Loving your genitals, your brakes and accelerator, and the way your brain responds to context. Loving the context itself. Loving arousal nonconcordance and responsive desire. Loving what’s true, even when it’s not what you were taught “should” be true. Loving what’s true, even when it’s not what you wish were true.
+> Loving your genitals, your brakes and accelerator, and the way your brain responds to context. Loving the context itself. Loving arousal non-concordance and responsive desire. Loving what’s true, even when it’s not what you were taught “should” be true. Loving what’s true, even when it’s not what you wish were true.
 
 - **Non-judge**: Not categorizing your internal experience as good or bad, right or wrong. 
 
-> In other words, non-judging allows you to feel what you feel, whether or not it makes sense to you, whether or not it’s comfortable, whether or not it’s what you believe you should be feeling. Nonjudging is neutrally noticing your own internal states. With nonjudging, it doesn’t matter how you feel; what matters is how you feel about how you feel. And the most wellness-promoting way to feel is... neutral.
+> In other words, non-judging allows you to feel what you feel, whether or not it makes sense to you, whether or not it’s comfortable, whether or not it’s what you believe you should be feeling. Non-judging is neutrally noticing your own internal states. With non-judging, it doesn’t matter how you feel; what matters is how you feel about how you feel. And the most wellness-promoting way to feel is... neutral.
 
 - **Script**: Something that should be that way. The _social messages_ are _scripts_.
 
@@ -234,7 +234,7 @@ Someone said:
 
 By not judging, you allow yourself to experience pleasure and enhance it, leading you straight to ecstasy.
 
-> This is a strange truth about nonjudgment. When you turn toward suffering with nonjudgment, the suffering diminishes as wounds heal. When you turn toward pleasure with nonjudgment, it expands to all the space judgment once
+> This is a strange truth about non-judgment. When you turn toward suffering with non-judgment, the suffering diminishes as wounds heal. When you turn toward pleasure with non-judgment, it expands to all the space judgment once
 filled.
 
 That happens because you brain has a processing capacity. If you spend part of it judging, you can't devote all your capacity to healing or pleasure. 
@@ -251,6 +251,37 @@ Many of these _social messages_ are so deep in our minds that we had built our p
 
 You are pulling up all the weeds (poisonous goals and beliefs) from your _mental garden_ (your mind), which happened to be most of the plants, leaving it almost deserted. It hurts so much.
 
-> The way to get through is to stay very still, to notice all the aspects of your identity that were tied to the lies you were told, to notice all the grief you feel in letting go of the self you spent your life trying to be. Notice, too, the anger you feel at having been lied to for so long. Notice all of these with nonjudgment. Allow them to be true.
+> The way to get through is to stay very still, to notice all the aspects of your identity that were tied to the lies you were told, to notice all the grief you feel in letting go of the self you spent your life trying to be. Notice, too, the anger you feel at having been lied to for so long. Notice all of these with non-judgment. Allow them to be true.
 
 > Emotions are tunnels: You have to go through the darkness to get to the light at the end. Sometimes that’s fairly easy, but sometimes it hurts like hell. Sometimes letting go of a particular goal feels like you have to let go of your entire identity. It’s not an easy process; parts of it are downright uncomfortable. But it’s so, so worth it, because at the end of the tunnel is the ultimate reward: you.
+
+## To feel normal
+
+### You belongs
+
+What do you think your goal is? Is it pleasure? Connection with her partner? Self-discovery?
+
+For most people the main goal is to feel "_normal_" (the social meaning). But there is no such a thing like "_normal_", because we all are _normal_ (the real meaning).
+
+What people really aim by being "_normal_" is to feel that they _belong_, we are social beings. If you feel that you don't _belong_ you feel lost, what implies risk and insecurity.    
+
+> We want to know that we are safe within the bounds of shared human experience, that what’s on our map is the same as what is on other people’s maps.
+
+> When people ask me, "Am I normal?" they’re asking, "Do I belong?"<br/>
+&emsp;The answer is yes. You belong in your body. You belong in the world. You’ve belonged since the day you were born, this is your home. You don’t have to earn it by conforming to some externally imposed sexual standard.<br/>
+&emsp;If you change your goal from “normal” to “wherever I belong,” then you’re always successful because you’re already there.
+
+### This is it
+
+You are as you are now, this is it. 
+
+> For many years, I kept a small comic taped to my office door. It shows an old Buddhist monk sitting next to a young Buddhist monk. The older monk is saying, "Nothing happens next. This is it."<br/>
+&emsp;Being more nerd than nun, I see it as a commentary on the discrepancy-reducing feedback loop and criterion velocity, on the importance of training your little monitor to enjoy the present rather than constantly push toward the future. What if... this is a radical idea, but just go with me: What if you felt that way---"This is it"---about your sexual functioning? What if the sexuality you have right now is the sexuality you get? What if this is it?
+
+If you have _negative feeling_ noticing that "this is it", you are feeling the gap between your goal of "_normal_" (social meaning) and how you are. But remember that you are already _normal_ (the real meaning). See [Mourning the “shoulds”](#mourning-the-shoulds)
+
+### Not your fault but your responsibility
+
+Culture has planted weeds in our mental garden with social messages from a young age, shaping what we believe to be "normal" (social meaning). So it is our job to pull out the weeds. Even though it is not our fault, is your responsibility. You are already _normal_ (real meaning). 
+
+> The day you were born, the world had a choice about what to teach you about your body. It could have taught you to live with confidence and joy inside your body. It could have taught you that your body and your sexuality are beautiful gifts. But instead, the world taught you to feel critical of and dissatisfied with your sexuality and your body. You were taught to value and expect something from your sexuality that does not match what your sexuality actually is. You were told a story about what would happen in your sexual life, and that story was false. You were lied to. 
