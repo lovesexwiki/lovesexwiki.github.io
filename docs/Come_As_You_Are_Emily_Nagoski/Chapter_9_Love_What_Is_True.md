@@ -30,7 +30,33 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 - **Little monitor**: Everyone have a _little monitor_ in their minds that checks constantly for a _gap_ between theirs expectations of their goals and theirs experiences. If your expectations are not being met your notice the _gap_. If your experiences are over your expectations you feel good and motivated; but if your experiences are under your expectations you get frustrated, stressed and disappointed, so you do it even worse, thus increasing the _gap_, falling into a vicious circle.
 
-- **Stress cycle**: Everyone have _stressors_ which are activated in some context (the lion) with a given intensity that produce the stress. That stress is manifested by one of the three responses: freeze, fight, flee. To release that stress by: having a bath, do sport, shout, cry, sleep, etc. In nature the stress situations hit the stressors with high intensity but short, then yo have a stress response, then the stress situation is over, then you release the stress easily. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't release stress properly. That is why stress nowadays is a major problem for most people.    
+#### Stress
+
+- **Stress response**: _Psychological, physiologinal and behavioral stress response_. _Stress response_ happens in the mind **as well as in the body**. 
+
+    - **Psychological stress response**: When the _stressor_ high and short then the main response is full focus on the _stressor_ and fear. When the _stressor_ is low and constantly the main response is anxiety and trouble focusing, because you are concerned about the _stressor_.
+
+    - **Physiologinal stress response**: Increase heart rate, blood pressure, breathing, muscles tighten, blood flows to the skin, pupils dilate, the immune, digestive and reproductive systems stop, and all you can think about is the problem.
+
+    - **Behavioral stress response**: Freeze, fight or flee. When the _stressor_ is low and constantly these responses are often manifested as anxiety behaviors like insomnia (fight or flee mentally, focus on the _stressor_), argue more frequently (fight), compulsive behaviors (i.e. over-eating) (trying to de-stress), nervous (i.e. change posture) (flee), etc.   
+
+- **Stressor**: Context that activate the _stress response_. The _stressors_ have an intensity and a duration, i.e. a lion is a super strong _stressor_ but short, while bills are low _stressors_ but constantly. Some typical _stressors_ are bills, family, work, fretting about your sex life, etc.
+
+- **De-stressor**: Context that communicate to your body, "You have escaped and survived!"
+
+    - Physical activity
+    - Sharing affection
+    - Primal scream or a good cry
+    - Progressive muscle relaxation or other sensorimotor meditation
+    - Body self-care, like grooming, massage, or doing your nails
+
+- **De-stress**: Communicate to your body _"I'm safe, I've escaped and survived"_ through _de-stressors_. So you stop the _stress response_. 
+
+
+**Stress cycle**: A _stressor_ (or many) activate your _stress response_, you experience the _stress response_ until you 
+
+In nature the stress situations hit the stressors with high intensity but short, so the _stressor_ is over quickly and is easy to de-stress. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't release stress properly. That is why stress nowadays is a major problem for most people.    
+
 
 #### _Normal_ and _broken_ 
 
@@ -50,13 +76,11 @@ Includes moral, media and medical messages.
 
 - **Moral messages**: You are evil. 
 
-> If you want or like sex, you’re a slut. Your virginity is your most valuable asset. If you’ve had too many
-partners (“too many” = more than your male partner has had), you should be ashamed. There is only one right way to behave and one right way to feel about sex---not to feel anything about it at all but to accommodate the man to whom your body belongs. [...] If you
-are sexually desirable, you are, by definition, unlovable, and a slut.
+> If you want or like sex, you’re a slut. Your virginity is your most valuable asset. If you’ve had too many partners (“too many” = more than your male partner has had), you should be ashamed. There is only one right way to behave and one right way to feel about sex---not to feel anything about it at all but to accommodate the man to whom your body belongs. [...] If you are sexually desirable, you are, by definition, unlovable, and a slut.
 
 - **Media messages**: You are inadequate.
 
-> Spanking, food play, ménages à trois... you’ve done all these things, right? Well, you’ve at least had clitoral orgasms, vaginal orgasms, uterine orgasms, energy orgasms, extended orgasms, and multiple orgasms? And you’ve mastered at least thirty-five different positions for intercourse? If you don’t try all these things, you’re frigid. If you’ve had too few partners, don’t watch porn, and don’t have a collection of vibrators in your bedside table, you’re a prude. Also: You’re too fat and too thin; your breasts are too big and too small. Your body is wrong. If you’re not trying to change it, you’re lazy. If you’re satisfied with yourself as you are, you’re settling. And if you dare to actively like yourself, you’re a conceited bitch. In short, you are doing it wrong. Do it differently. No, that’s wrong, too, try something else. Forever.
+> Spanking, food play, treesomes... you’ve done all these things, right? Well, you’ve at least had clitoral orgasms, vaginal orgasms, uterine orgasms, energy orgasms, extended orgasms, and multiple orgasms? And you’ve mastered at least thirty-five different positions for intercourse? If you don’t try all these things, you’re frigid. If you’ve had too few partners, don’t watch porn, and don’t have a collection of vibrators in your bedside table, you’re a prude. Also: You’re too fat and too thin; your breasts are too big and too small. Your body is wrong. If you’re not trying to change it, you’re lazy. If you’re satisfied with yourself as you are, you’re settling. And if you dare to actively like yourself, you’re a conceited bitch. In short, you are doing it wrong. Do it differently. No, that’s wrong, too, try something else. Forever.
 
 - **Medical messages**: You are deceased.
 
