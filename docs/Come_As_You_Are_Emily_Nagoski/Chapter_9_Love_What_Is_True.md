@@ -4,7 +4,7 @@ This chapter is about how to reach the ecstasy through _confidence_ and _joy_ in
 
 First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the hard part.
 
-## Definitions
+## Glossary
 
 ### This chapter
 
@@ -27,6 +27,10 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 ### Other chapters
 
 - **Negative feelings**: Feelings like hate, angry, frustration, despair, disappointment and shame.
+
+- **Little monitor**: Everyone have a _little monitor_ in their minds that checks constantly for a _gap_ between theirs expectations of their goals and theirs experiences. If your expectations are not being met your notice the _gap_. If your experiences are over your expectations you feel good and motivated; but if your experiences are under your expectations you get frustrated, stressed and disappointed, so you do it even worse, thus increasing the _gap_, falling into a vicious circle.
+
+- **Stress cycle**: Everyone have _stressors_ which are activated in some context (the lion) with a given intensity that produce the stress. That stress is manifested by one of the three responses: freeze, fight, flee. To release that stress by: having a bath, do sport, shout, cry, sleep, etc. In nature the stress situations hit the stressors with high intensity but short, then yo have a stress response, then the stress situation is over, then you release the stress easily. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't release stress properly. That is why stress nowadays is a major problem for most people.    
 
 #### _Normal_ and _broken_ 
 
