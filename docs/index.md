@@ -1,6 +1,6 @@
 # Home
 
-Welcome love and sexuality wiki.
+Welcome to a love and sexuality wiki.
 
 ## Who I am?
 
