@@ -1,6 +1,6 @@
 # Home
 
-Welcome to LoveSexEager, a love and sexuality wiki.
+Welcome love and sexuality wiki.
 
 ## Who I am?
 

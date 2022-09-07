@@ -58,7 +58,7 @@ Some typical questions _this book_ answers:
 
 **Answer**: If you doubt, probably don't. Do you know where is you clit? Take a mirror and look at it, pay attention to it the next time you masturbate or have sex. Clit stimulation is the most usual way to reach orgasm for women. Make your partner know it. 
 
-**Fact**: Less than a quarter of woman are realibly orgasmic by intercourse. 
+**Fact**: Less than a quarter of woman are reliably orgasmic by intercourse. 
 
 ## Why this summary?
 

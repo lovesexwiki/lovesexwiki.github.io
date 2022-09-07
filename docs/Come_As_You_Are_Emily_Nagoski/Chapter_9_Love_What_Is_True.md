@@ -32,13 +32,13 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 #### Stress
 
-- **Stress response**: _Psychological, physiologinal and behavioral stress response_. _Stress response_ happens in the mind **as well as in the body**. 
+- **Stress response**: _Psychological, physiological and behavioral stress response_. _Stress response_ happens in the mind **as well as in the body**. 
 
     - **Psychological stress response**: When the _stressor_ high and short then the main response is full focus on the _stressor_ and fear. When the _stressor_ is low and constantly the main response is anxiety and trouble focusing, because you are concerned about the _stressor_.
 
-    - **Physiologinal stress response**: Increase heart rate, blood pressure, breathing, muscles tighten, blood flows to the skin, pupils dilate, the immune, digestive and reproductive systems stop, and all you can think about is the problem.
+    - **Physiological stress response**: Increase heart rate, blood pressure, breathing, muscles tighten, blood flows to the skin, pupils dilate, the immune, digestive and reproductive systems stop, and all you can think about is the problem.
 
-    - **Behavioral stress response**: Freeze, fight or flee. When the _stressor_ is low and constantly these responses are often manifested as anxiety behaviors like insomnia (fight or flee mentally, focus on the _stressor_), argue more frequently (fight), compulsive behaviors (i.e. over-eating) (trying to de-stress), nervous (i.e. change posture) (flee), etc.   
+    - **Behavioral stress response**: Freeze, fight or flee. When the _stressor_ is low and constantly these responses are often manifested as anxiety behaviors like insomnia (fight or flee mentally, focus on the _stressor_), argue more frequently (fight), compulsive behaviors (i.e. over-eating) (trying to _de-stress_), nervous (i.e. change posture) (flee), etc.   
 
 - **Stressor**: Context that activate the _stress response_. The _stressors_ have an intensity and a duration, i.e. a lion is a super strong _stressor_ but short, while bills are low _stressors_ but constantly. Some typical _stressors_ are bills, family, work, fretting about your sex life, etc.
 
@@ -55,8 +55,7 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 **Stress cycle**: A _stressor_ (or many) activate your _stress response_, you experience the _stress response_ until you 
 
-In nature the stress situations hit the stressors with high intensity but short, so the _stressor_ is over quickly and is easy to de-stress. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't release stress properly. That is why stress nowadays is a major problem for most people.    
-
+In nature the stress situations hit the stressors with high intensity but short, so the _stressor_ is over quickly and is easy to _de-stress_. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't _de-stress_ properly. That is why stress nowadays is a major problem for most people.    
 
 #### _Normal_ and _broken_ 
 
