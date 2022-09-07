@@ -103,7 +103,7 @@ If you have a partner ask yourself what you think their responses would be. Then
 
 ### Step 2: Notice the gap
 
-Your feelings are always true, so notice them. If you have _negative feelings_ experiencing your sexuality probably it's your _little monitor_ fault, noticing that the expectations you have for your goals are not being met. So close the gap by [reality-check](True_Stories.md#reality-check).
+Your feelings are always true, so notice them. If you have _negative feelings_ experiencing your sexuality probably it's your _little monitor_ fault, noticing that the expectations you have for your goals are not being met. So close the gap by [reality-check](stories.md#reality-check).
 
 This also applies to what you feel about your partner sexuality, i.e. you feel your partner **should** have "more"---Maybe you have spontaneous desire and you think your partner responsive desire as lesser (it's an opinion not a fact)---sexual desire.
 
@@ -169,7 +169,7 @@ Whenever you notice a _negative feeling_ ask yourself (don't lock it):
 
 - It is this belief true? 
 
-Do [reality-check](True_Stories.md#reality-check) and heal that feeling by completing the _stress cycle_.
+Do [reality-check](stories.md#reality-check) and heal that feeling by completing the _stress cycle_.
 
 ### Step 4: How to _non-judge_?
 
@@ -238,7 +238,7 @@ Be aware that you feel pain and tell yourself _"Pain is not normal. I don't have
 
 > This is as literal as it gets: It’s not how you feel (pain). It’s how you feel (tolerant or not) about how you feel. Non-judging doesn’t mean resignation. It means turning toward what’s true with kindness, without self-criticism. With non-judging, you can ask for help.
 
-See [pain causes](extra/Pain_Causes.md).
+See [pain causes](extra/pain_causes.md).
 
 ### Increasing pleasure 
 

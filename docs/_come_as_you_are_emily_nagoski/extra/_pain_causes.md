@@ -1,6 +1,6 @@
 # Pain Causes
 
-For read about pain psychology, read [resolving pain](../Chapter_9_Love_What_Is_True.md#resolving-pain)
+For read about pain psychology, read [resolving pain](../chapter_9_love_what_is_true.md#resolving-pain)
 
 Some main causes of pain during sex are lack of lubrication and vaginismus.
 
@@ -35,7 +35,7 @@ _Vaginismus_ is chronic tension of the pelvic floor muscle, which makes penetrat
 
 - Trauma: Sexual abuse, physical attack, repressed memories, etc.  
 
-**Solution**: [Heal the trauma](../Chapter_9_Love_What_Is_True.md#healing-the-trauma).
+**Solution**: [Heal the trauma](../chapter_9_love_what_is_true.md#healing-the-trauma).
 
 - Partner: Abuse, emotional detachment, fear of commitment, distrust, anxiety about being vulnerable, etc.
 
@@ -43,7 +43,7 @@ _Vaginismus_ is chronic tension of the pelvic floor muscle, which makes penetrat
 
 - Childhood experiences: Overly rigid parenting, unbalanced religious teaching (i.e. "Sex is BAD"), inadequate sex education, etc.
 
-**Solution**: Get rid of _social messages_. [Draw a new _map_](../Chapter_9_Love_What_Is_True.md#step-2-notice-the-gap).
+**Solution**: Get rid of _social messages_. [Draw a new _map_](../chapter_9_love_what_is_true.md#step-2-notice-the-gap).
 
 - Pee, poop and fart: Many people have fear to pee, poop and fart out of their houses. So they keep theirs pelvic floor in chronic tension.
 
@@ -57,7 +57,7 @@ _Vaginismus_ is chronic tension of the pelvic floor muscle, which makes penetrat
  
 #### Mental
 
-Read [Chapter 9: Love What Is True](../Chapter_9_Love_What_Is_True.md) and seek for reasons.
+Read [Chapter 9: Love What Is True](../chapter_9_love_what_is_true.md) and seek for reasons.
 
 #### Physical
 

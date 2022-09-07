@@ -2,7 +2,7 @@ site_name: LoveSexWiki
 site_url: https://lovesexwiki.github.io 
 site_author: lovesexwiki
 site_description: "A wiki for love and sexuality eagers"
-copyright: "LoveSexEager is licensed under the <a href='https://github.com/lovesexeager/lovesexeager.github.io/blob/working/LICENSE'>MIT license</a>"
+copyright: "LoveSexEager is licensed under the <a href='https://mit-license.org'>MIT license</a>"
 strict: true
 theme: cinder
 markdown_extensions:
@@ -13,8 +13,9 @@ markdown_extensions:
 nav:
     - Home: 'index.md'
     - 'Come As You Are - Emily Nagoski': 
-        - Overview: Come_As_You_Are_Emily_Nagoski/Overview.md
-        - 'Chapter 9: Love what is true': Come_As_You_Are_Emily_Nagoski/Chapter_9_Love_What_Is_True.md
-        - 'True Stories': Come_As_You_Are_Emily_Nagoski/True_Stories.md 
+        - Overview: come_as_you_are_emily_nagoski/overview.md
+        - 'Chapter 9: Love what is true': come_as_you_are_emily_nagoski/chapter_9_love_what_is_true.md
+        - 'Stories': come_as_you_are_emily_nagoski/stories.md 
         - Extra: 
-            - 'Pain Causes': Come_As_You_Are_Emily_Nagoski/extra/Pain_Causes.md 
+            - 'Pain causes': come_as_you_are_emily_nagoski/extra/pain_causes.md 
+              
