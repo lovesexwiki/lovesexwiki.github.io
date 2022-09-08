@@ -30,35 +30,11 @@ _This book_ is about:
 
 _This book_ is not just a sexuality book, _this book_ is **about life**. Everything you learn in _this book_ will improve your life in general, not just my sexuality.
 
-### Typical questions
+### The promise
 
-Some typical questions _this book_ answers:
-
-- Once my partner initiates, I’m into it, but it seems like it never even occurs to me to be the one to start things. Why is that?
-
-**Answer**: You have responsive-desire. What is normal.
-
-- My boyfriend was like, "You’re not ready, you’re still dry." But I was so ready. So why wasn’t I wet? 
-
-**Answer**:  You experience non-concordance. What is normal.
-
-- I saw this thing about women who can’t enjoy sex because they worry about their bodies the whole time. That’s me. How do I stop doing that?
-
-**Answer**: By non-judging. It's an usual problem.
-
-- I read something about women who stop wanting sex after a while in a relationship, even if they still love their partner. That’s me. How do I start wanting sex with my partner again?
-
-**Answer** Maybe chasing dynamic (set a rule against sex temporally), stressed (complete the cycle) or context (create a sex-positive context). 
-
-- I think maybe I peed when I had an orgasm...?
-
-**Answer**: It's a squirt, vaginal fluids, not pee. It's normal, enjoy it, don't hit you brakes.
-
-- I think maybe I’ve never had an orgasm...?
-
-**Answer**: If you doubt, probably don't. Do you know where is you clit? Take a mirror and look at it, pay attention to it the next time you masturbate or have sex. Clit stimulation is the most usual way to reach orgasm for women. Make your partner know it. 
-
-**Fact**: Less than a quarter of woman are reliably orgasmic by intercourse. 
+> The promise of Come as You Are is this: No matter where you are in your sexual journey right now, whether you have an awesome sex life and want to expand the awesomeness, or you’re struggling and want to find solutions, you will learn something that will improve your sex life and transform the way you understand what it means to be a sexual being. And you’ll discover that, even if you don’t yet feel that way, you are already sexually whole and healthy.<br/>
+&emsp;The science says so.<br/>
+&emsp;I can prove it.
 
 ## Why this summary?
 

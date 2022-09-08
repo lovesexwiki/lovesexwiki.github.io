@@ -26,7 +26,11 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 ### Other chapters
 
-- **Negative feelings**: Feelings like hate, angry, frustration, despair, disappointment and shame.
+- [**Normal and broken**](introduction_yes_you_are_normal.md#normal_and_broken)
+
+- [**Social messages: Moral, media and medical messages**](introduction_yes_you_are_normal.md#social-messages)
+
+- [**Negative feelings**](introduction_yes_you_are_normal.md#glossing)
 
 - **Little monitor**: Everyone have a _little monitor_ in their minds that checks constantly for a _gap_ between theirs expectations of their goals and theirs experiences. If your expectations are not being met your notice the _gap_. If your experiences are over your expectations you feel good and motivated; but if your experiences are under your expectations you get frustrated, stressed and disappointed, so you do it even worse, thus increasing the _gap_, falling into a vicious circle.
 
@@ -52,38 +56,9 @@ First is _confidence_, then _joy_. _Confidence_ is not enough, and _joy_ is the 
 
 - **De-stress**: Communicate to your body _"I'm safe, I've escaped and survived"_ through _de-stressors_. So you stop the _stress response_. 
 
-
 **Stress cycle**: A _stressor_ (or many) activate your _stress response_, you experience the _stress response_ until you 
 
 In nature the stress situations hit the stressors with high intensity but short, so the _stressor_ is over quickly and is easy to _de-stress_. But nowadays the stress contexts hit with low intensity but constantly, and it is also socially frowned upon to express your feelings, so we can't _de-stress_ properly. That is why stress nowadays is a major problem for most people.    
-
-#### _Normal_ and _broken_ 
-
-- **Social meaning**: You are like _social messages_ says you should be. 
-
-Which is totally impossible because many _social messages_ are opposites.
-
-- **True meaning**: Totally healthy, just same parts as everyone else, organized in a unique way.
-
-Everyone who is healthy (physical and mentally) is normal. 
-
-- **Broken**: Not _normal_, the social meaning. Usually implies damaged, inadequate, or diseased. It's something wrong with you.
-
-#### _Social messages_ 
-
-Includes moral, media and medical messages.
-
-- **Moral messages**: You are evil. 
-
-> If you want or like sex, you’re a slut. Your virginity is your most valuable asset. If you’ve had too many partners (“too many” = more than your male partner has had), you should be ashamed. There is only one right way to behave and one right way to feel about sex---not to feel anything about it at all but to accommodate the man to whom your body belongs. [...] If you are sexually desirable, you are, by definition, unlovable, and a slut.
-
-- **Media messages**: You are inadequate.
-
-> Spanking, food play, treesomes... you’ve done all these things, right? Well, you’ve at least had clitoral orgasms, vaginal orgasms, uterine orgasms, energy orgasms, extended orgasms, and multiple orgasms? And you’ve mastered at least thirty-five different positions for intercourse? If you don’t try all these things, you’re frigid. If you’ve had too few partners, don’t watch porn, and don’t have a collection of vibrators in your bedside table, you’re a prude. Also: You’re too fat and too thin; your breasts are too big and too small. Your body is wrong. If you’re not trying to change it, you’re lazy. If you’re satisfied with yourself as you are, you’re settling. And if you dare to actively like yourself, you’re a conceited bitch. In short, you are doing it wrong. Do it differently. No, that’s wrong, too, try something else. Forever.
-
-- **Medical messages**: You are deceased.
-
-> Sex causes disease and pregnancy, which makes it dangerous. But if you’re ready to take that risk, sexual functioning should happen in a particular way---desire, then arousal, then orgasm, preferably during intercourse, simultaneously with your partner---and when it doesn’t, there is a medical issue that you must address. Medically. With medication. Or possibly surgery. To the extent that a woman’s sexual response differs from a man’s, she is diseased---except for pregnancy, which is what sex is for. 
 
 ## Confidence: The map
 

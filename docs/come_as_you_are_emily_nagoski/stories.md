@@ -1,4 +1,9 @@
-# True stories
+# Stories
+
+## Are there true stories?
+
+> Throughout the book, you’ll follow the stories of four women---Olivia, Merritt, Camilla, and Laurie. These women don’t exist as individuals; they’re composites, integrating the real stories of the many women I’ve taught, talked with, emailed, and supported in my two decades as a sex educator. You can imagine each woman as a collage of snapshots---the face from one photograph,
+the arms from another, the feet from a third... each part represents someone real, and the collection hangs together meaningfully, but I’ve invented the relationships that the parts have to each other.
 
 ## _Reality check_
 
